@@ -2,4 +2,5 @@
 
 Go to www.usepromi.com to find out more.
 
-Merch at https://promi-shop.fourthwall.com/
+Find some merch at https://promi-shop.fourthwall.com/
+
